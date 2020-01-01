@@ -1,3 +1,3 @@
--https://www.youtube.com/watch?v=JaMCxVWtW58&list=PLillGF-RfqbbnEGy3ROiLWk7JMCuSyQtX&index=7&t=0s
+https://www.youtube.com/watch?v=JaMCxVWtW58&list=PLillGF-RfqbbnEGy3ROiLWk7JMCuSyQtX&index=7&t=0s
 
--위 영상을 참고했습니다.
+위 영상을 따라했습니다.
